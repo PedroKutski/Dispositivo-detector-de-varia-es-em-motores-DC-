@@ -1,0 +1,1 @@
+# Dispositivo-detector-de-varia-es-em-motores-DC-
